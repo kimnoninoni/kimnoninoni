@@ -1,2 +1,4 @@
 ## Hi there 👋
-![Welcome-to-Noni-s-Github](https://github.com/user-attachments/assets/b2594d64-012c-470d-9f29-3be0389546de)
+![Welcome-to-Noni-s-Github (1)](https://github.com/user-attachments/assets/54dacdb3-3334-4e6b-b974-7d8ac0dfcac5)
+
+
